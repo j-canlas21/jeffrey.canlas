@@ -1,2 +1,0 @@
-# jeffrey.canlas
-Portfolio
